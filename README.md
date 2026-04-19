@@ -1,1 +1,0 @@
-# senerami_invitation.github.io
